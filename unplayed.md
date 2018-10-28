@@ -1,0 +1,16 @@
+A shortlist for future play.
+
+- Uncharted 4 (PS4)
+- Dark Souls 3 (PS4)
+- Bloodborne (PS4)
+- Pikmin 3 (WiiU)
+- ZombiU (WiiU)
+- Bayonetta 2 (WiiU)
+- South Park: The Stick of Truth (PC)
+- Antichamber (PC)
+- Kentucky Route Zero (PC)
+- Cypher (PC)
+- Catherine (PS3)
+- Sine Mora (360/PC)
+- Resonance of Fate / End of Eternity (PS3)
+- Yakuza 4 (PS3)
