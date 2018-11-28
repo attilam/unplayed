@@ -1,5 +1,6 @@
 These are either in progress or I get back to them from time to time.
 
+- HITMAN (Steam)
 - Mario & Luigi Superstar Saga + Bowser's Minions (3DS)
 - Hollow Knight (Switch)
 - The Way Remastered (Switch)
