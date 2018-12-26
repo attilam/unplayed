@@ -1,5 +1,7 @@
 Some more thoroughly&#8212;or more times&#8212;than others.
 
+- Prey (Steam)
+- HITMAN (Steam)
 - Firewatch (Steam)
 - Gorogoa (Steam)
 - Steamworld Dig 2 (Switch)
