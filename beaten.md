@@ -1,5 +1,6 @@
 Some more thoroughly&#8212;or more times&#8212;than others.
 
+- Dishonored 2 (Steam)
 - Prey (Steam)
 - HITMAN (Steam)
 - Firewatch (Steam)

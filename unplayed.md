@@ -1,7 +1,8 @@
 A shortlist for future play.
 
+- HITMAN 2 (Steam)
 - Uncharted 4 (PS4)
-- Dark Souls 3 (PS4)
+- Dark Souls 3 (Steam, PS4)
 - Bloodborne (PS4)
 - Pikmin 3 (WiiU)
 - ZombiU (WiiU)
@@ -12,5 +13,5 @@ A shortlist for future play.
 - Cypher (PC)
 - Catherine (PS3)
 - Sine Mora (360/PC)
-- Resonance of Fate / End of Eternity (PS3)
+- Resonance of Fate / End of Eternity (Steam, PS3)
 - Yakuza 4 (PS3)
